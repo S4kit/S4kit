@@ -1,4 +1,4 @@
 -------------------------------
-Hello I am SAID Benslimane (@S4kit) 
-More informations: [Linkedin.com/benssaid](https://www.linkedin.com/in/benssaid/)www.linkedin.com/in/benssaid/
+Hello I am just a tech (@S4kit) 
+More informations: [Linkedin](https://www.linkedin.com/in/benssaid/)
 -------------------------------
